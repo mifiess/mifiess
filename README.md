@@ -1,13 +1,13 @@
 ‘–𝚑𝚎𝚛 𝚕𝚘𝚟𝚎 𝚒𝚜 𝚒𝚗 𝚖𝚢 𝚑𝚎𝚊𝚍.’
 
-17776665390353156820449113318450
-𝚑𝚎𝚢! 𝚒 𝚊𝚝𝚎 𝚠𝚒𝚏𝚒𝚎𝚜 𝚑𝚘𝚞𝚜𝚎.
+https://private-user-images.githubusercontent.com/218593485/586627040-7916c775-9df4-4552-a229-158842cd3543.jpg?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3Nzc5MDM1NDIsIm5iZiI6MTc3NzkwMzI0MiwicGF0aCI6Ii8yMTg1OTM0ODUvNTg2NjI3MDQwLTc5MTZjNzc1LTlkZjQtNDU1Mi1hMjI5LTE1ODg0MmNkMzU0My5qcGc_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjYwNTA0JTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI2MDUwNFQxNDAwNDJaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT0zZTI4MGY5OTVlMmQzYTJlZmEyNDRiNTQ4NmRlN2FhMTBhMTFiZDNjNjBhZDg2YTg3MDc3NWI5NTlkNTdkYzRkJlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCZyZXNwb25zZS1jb250ZW50LXR5cGU9aW1hZ2UlMkZqcGVnIn0.MmPpfqtWTrWkNEVhO3rVn4jVZfeDRvyn2ueTFGlkbHM
+-𝚑𝚎𝚢! 𝚒 𝚊𝚝𝚎 𝚠𝚒𝚏𝚒𝚎𝚜 𝚑𝚘𝚞𝚜𝚎.
 
-𝚒 𝚙𝚛𝚎𝚏𝚎𝚛 𝚐𝚘𝚒𝚗𝚐 𝚋𝚢 𝚙𝚎𝚝𝚎𝚛 𝚋𝚢 𝚘𝚝𝚑𝚎𝚛𝚜, 𝚋𝚞𝚝 𝚊𝚙𝚙𝚕𝚎 𝚒𝚜 𝚏𝚒𝚗𝚎 𝚝𝚘𝚘
+-𝚒 𝚙𝚛𝚎𝚏𝚎𝚛 𝚐𝚘𝚒𝚗𝚐 𝚋𝚢 𝚙𝚎𝚝𝚎𝚛 𝚋𝚢 𝚘𝚝𝚑𝚎𝚛𝚜, 𝚋𝚞𝚝 𝚊𝚙𝚙𝚕𝚎 𝚒𝚜 𝚏𝚒𝚗𝚎 𝚝𝚘𝚘
 
-𝚗𝚘𝚛𝚖ᥲ𝚕𝚕𝚢 𝚒𝚗 𝚐𝚝𝚌𝚜, 𝚑𝚊𝚗𝚐𝚘𝚞𝚝,𝚏𝚝𝚜,𝖿𝚜𝚛
+-𝚗𝚘𝚛𝚖ᥲ𝚕𝚕𝚢 𝚒𝚗 𝚐𝚝𝚌𝚜, 𝚑𝚊𝚗𝚐𝚘𝚞𝚝,𝚏𝚝𝚜,𝖿𝚜𝚛
 
-𝚠𝚘𝚗𝚝 𝚜𝚎𝚎 𝚖𝚎 𝚒𝚗 𝚛𝚙𝚜 𝚞𝚗𝚕𝚎𝚜𝚜 𝚜𝚙𝚎𝚌/𝚠𝚒𝚝𝚑 𝚏𝚛𝚒𝚎𝚗𝚍𝚜
+-𝚠𝚘𝚗𝚝 𝚜𝚎𝚎 𝚖𝚎 𝚒𝚗 𝚛𝚙𝚜 𝚞𝚗𝚕𝚎𝚜𝚜 𝚜𝚙𝚎𝚌/𝚠𝚒𝚝𝚑 𝚏𝚛𝚒𝚎𝚗𝚍𝚜
 
 https://youtube.com/@deepfriedegg?si=dILyTYHKW-1dPiVI
 
@@ -15,13 +15,13 @@ https://youtube.com/@xxliyah?si=6Rbvo0bojWA0ssAI
 
 *✧･ﾟ: *✧･ﾟ:*✧･ﾟ: *✧･ﾟ:*✧･ﾟ: *✧･ﾟ:✼ •• ┈┈┈┈๑⋅⋯ ୨˚୧ ⋯⋅๑┈┈┈┈ •• ✼✰⋆｡:ﾟ･*☽:ﾟ･⋆｡✰⋆｡:ﾟ･*☽:ﾟ･⋆｡✰⋆｡:ﾟ･*☽ ✄┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈✄┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈✄┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈
 
-𝚒 𝚕𝚘𝚟𝚎 𝚖𝚢 𝚏𝚛𝚒𝚎𝚗𝚍𝚜 𝚘𝚔𝚊𝚢?..
+>𝚒 𝚕𝚘𝚟𝚎 𝚖𝚢 𝚏𝚛𝚒𝚎𝚗𝚍𝚜 𝚘𝚔𝚊𝚢?..
 
-𝚖𝚘𝚜𝚝𝚕𝚢 𝚠𝚘𝚗𝚝 𝚌𝚊𝚛𝚎 𝚒𝚏 𝚢𝚘𝚞 𝚝𝚑𝚒𝚗𝚔 𝚒𝚖 𝚛𝚞𝚍𝚎, 𝚒𝚖 𝚕𝚠𝚔 𝚝𝚒𝚛𝚎𝚍 𝚑𝚊𝚕𝚏 𝚝𝚑𝚎 𝚝𝚒𝚖𝚎 𝚘𝚗 𝚙𝚝.
+>𝚖𝚘𝚜𝚝𝚕𝚢 𝚠𝚘𝚗𝚝 𝚌𝚊𝚛𝚎 𝚒𝚏 𝚢𝚘𝚞 𝚝𝚑𝚒𝚗𝚔 𝚒𝚖 𝚛𝚞𝚍𝚎, 𝚒𝚖 𝚕𝚠𝚔 𝚝𝚒𝚛𝚎𝚍 𝚑𝚊𝚕𝚏 𝚝𝚑𝚎 𝚝𝚒𝚖𝚎 𝚘𝚗 𝚙𝚝.
 
-𝚒𝚏 𝚢𝚘𝚞 𝚜𝚎𝚎 𝚖𝚎, 𝚏𝚎𝚎𝚕 𝚏𝚛𝚎𝚎 𝚝𝚘 𝚌+𝚑 𝚊𝚗𝚍 𝚒𝚗𝚝!
+>𝚒𝚏 𝚢𝚘𝚞 𝚜𝚎𝚎 𝚖𝚎, 𝚏𝚎𝚎𝚕 𝚏𝚛𝚎𝚎 𝚝𝚘 𝚌+𝚑 𝚊𝚗𝚍 𝚒𝚗𝚝!
 
-𝚒 𝚍𝚘 𝚖𝚊𝚔𝚎 𝚒𝚗𝚗𝚊𝚙𝚛𝚘𝚙𝚛𝚒𝚊𝚝𝚎 𝚓𝚘𝚔𝚎𝚜 𝚜𝚘𝚖𝚎𝚝𝚒𝚖𝚎𝚜, 𝚜𝚘 𝚍𝚗𝚒 𝚒𝚏 𝚞 𝚍𝚘𝚗𝚝 𝚕𝚒𝚔𝚎 𝚝𝚑𝚊𝚝.
+>𝚒 𝚍𝚘 𝚖𝚊𝚔𝚎 𝚒𝚗𝚗𝚊𝚙𝚛𝚘𝚙𝚛𝚒𝚊𝚝𝚎 𝚓𝚘𝚔𝚎𝚜 𝚜𝚘𝚖𝚎𝚝𝚒𝚖𝚎𝚜, 𝚜𝚘 𝚍𝚗𝚒 𝚒𝚏 𝚞 𝚍𝚘𝚗𝚝 𝚕𝚒𝚔𝚎 𝚝𝚑𝚊𝚝.
 
 ✿°•∘ɷ∘•°✿ ... ✿°•∘ɷ∘•°✿ ... ✿°•∘ɷ∘•°✿✿°•∘ɷ∘•°✿ ... ✿°•∘ɷ∘•°✿ ... ✿°•∘ɷ∘•°✿✿°•∘ɷ∘•°✿ ... ✿°•∘ɷ∘•°✿ ... ✿°•∘ɷ∘•°✿
 
