@@ -32,7 +32,4 @@
 
 × http://youtube.com/post/UgkxyRCopx866gYI7h9ggA59p74FCBvZTANv?si=Qp-QjM4Jq3iOyfeS
 
-◦◦,°.✽✦✽.◦.✽✦✽.°,◦◦◦◦,°.✽✦✽.◦.✽✦✽.°,◦◦◦◦,°.✽✦✽.◦.✽✦✽.°,◦◦◦◦,°.✽✦✽.◦.✽✦✽.°,◦◦◦◦,°.✽✦✽.◦.✽✦✽.°,◦
-^𝚎𝚐𝚐 𝚗𝚍 𝚕𝚒𝚢𝚊𝚑 𝚛 𝚖𝚢 comfs❤❤
-
-skido: lets have childs! aswga:ok but 9nly 1 - tha kids: evbo- firt childe  saps-they got boref  sabito-dead monika-aanted a gerl  nezo-adopte of street  mugm-he spawn isndie Theiir house  assim-disowneed keigo hawkes- they found on balkoniy  smilk-adopted again  till-they want 10 child  koala gerl-also adoptef jard-they foudn him in ther basement  odysseuys-idk speout-they ware cuddling  00un7-forsekn(𝚍𝚎𝚊𝚍) 
+◦◦,°.✽✦✽.◦.✽✦✽.°,◦◦◦◦,°.✽✦✽.◦.✽✦✽.°,◦◦◦◦,°.✽✦✽.◦.✽✦✽.°,◦◦◦◦,°.✽✦✽.◦.✽✦✽.°,◦◦◦◦,°.✽✦✽.◦.✽✦✽❤
