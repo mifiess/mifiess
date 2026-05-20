@@ -6,16 +6,11 @@
 -𝚗𝚘𝚛𝚖ᥲ𝚕𝚕𝚢 𝚒𝚗 𝚐𝚝𝚌𝚜, 𝚑𝚊𝚗𝚐𝚘𝚞𝚝,𝚏𝚝𝚜,𝖿𝚜𝚛
 
 -𝚠𝚘𝚗𝚝 𝚜𝚎𝚎 𝚖𝚎 𝚒𝚗 𝚛𝚙𝚜 𝚞𝚗𝚕𝚎𝚜𝚜 𝚜𝚙𝚎𝚌/𝚠𝚒𝚝𝚑 𝚏𝚛𝚒𝚎𝚗𝚍𝚜
-
-https://youtube.com/@deepfriedegg?si=dILyTYHKW-1dPiVI
-
-https://youtube.com/@xxliyah?si=6Rbvo0bojWA0ssAI
-
 *✧･ﾟ: *✧･ﾟ:*✧･ﾟ: *✧･ﾟ:*✧･ﾟ: *✧･ﾟ:✼ •• ┈┈┈┈๑⋅⋯ ୨˚୧ ⋯⋅๑┈┈┈┈ •• ✼✰⋆｡:ﾟ･*☽:ﾟ･⋆｡✰⋆｡:ﾟ･*☽:ﾟ･⋆｡✰⋆｡:ﾟ･*☽ ✄┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈✄┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈✄┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈
 
 >𝚒 𝚕𝚘𝚟𝚎 𝚖𝚢 𝚏𝚛𝚒𝚎𝚗𝚍𝚜 𝚘𝚔𝚊𝚢?..
 
->𝚖𝚘𝚜𝚝𝚕𝚢 𝚠𝚘𝚗𝚝 𝚌𝚊𝚛𝚎 𝚒𝚏 𝚢𝚘𝚞 𝚝𝚑𝚒𝚗𝚔 𝚒𝚖 𝚛𝚞𝚍𝚎, 𝚒𝚖 𝚕𝚠𝚔 𝚝𝚒𝚛𝚎𝚍 𝚑𝚊𝚕𝚏 𝚝𝚑𝚎 𝚝𝚒𝚖𝚎 𝚘𝚗 𝚙𝚝.
+>𝚖𝚘𝚜𝚝𝚕𝚢 𝚠𝚘𝚗𝚝 𝚌𝚊𝚛𝚎 𝚒𝚏 𝚢𝚘𝚞 𝚝𝚑𝚒𝚗𝚔 𝚒𝚖 𝚛𝚞𝚍𝚎
 
 >𝚒𝚏 𝚢𝚘𝚞 𝚜𝚎𝚎 𝚖𝚎, 𝚏𝚎𝚎𝚕 𝚏𝚛𝚎𝚎 𝚝𝚘 𝚌+𝚑 𝚊𝚗𝚍 𝚒𝚗𝚝!
 
@@ -36,17 +31,6 @@ https://youtube.com/@xxliyah?si=6Rbvo0bojWA0ssAI
 × http://youtube.com/post/UgkxyRCopx866gYI7h9ggA59p74FCBvZTANv?si=Qp-QjM4Jq3iOyfeS
 
 ◦◦,°.✽✦✽.◦.✽✦✽.°,◦◦◦◦,°.✽✦✽.◦.✽✦✽.°,◦◦◦◦,°.✽✦✽.◦.✽✦✽.°,◦◦◦◦,°.✽✦✽.◦.✽✦✽.°,◦◦◦◦,°.✽✦✽.◦.✽✦✽.°,◦
+^𝚎𝚐𝚐 𝚗𝚍 𝚕𝚒𝚢𝚊𝚑 𝚛 𝚖𝚢 comfs❤❤
 
-𝚏𝚊𝚗𝚍𝚘𝚖𝚜 𝚘𝚔𝚊𝚢?... ^ 𝚜𝚏𝚊𝚠𝚝𝚍𝚎/𝚍𝚊𝚠𝚝𝚍𝚎
-
-^ 𝚑𝚎𝚊𝚛𝚝𝚕𝚎𝚜𝚜 𝚑𝚘𝚛𝚒𝚣𝚘𝚗𝚜/𝚑𝚑
-
-^ 𝚞𝚗𝚜𝚝𝚊𝚋𝚕𝚎 𝚞𝚗𝚒𝚟𝚎𝚛𝚜𝚎/𝚞𝚞
-
-^ 𝚊𝚍𝚘𝚙𝚝 𝚖𝚎
-
-^ 𝚎𝚙𝚒𝚌 𝚝𝚑𝚎 𝚖𝚞𝚜𝚒𝚌𝚊𝚕
-
-^ 𝚎𝚐𝚐 𝚗𝚍 𝚕𝚒𝚢𝚊𝚑 𝚛 𝚖𝚢 𝚌𝚘𝚖𝚏𝚜❤❤ ///𝚠𝚜𝚜.
-
-𝙸'𝚖 𝚜𝚘𝚛𝚛𝚢 𝙸 𝚜𝚑𝚘𝚞𝚕𝚍𝚗'𝚝 𝚑𝚊𝚟𝚎 𝚛𝚊𝚒𝚜𝚎𝚍 𝚖𝚢 𝚟𝚘𝚒𝚌𝚎 𝚢𝚘𝚞'𝚛𝚎 𝚛𝚒𝚐𝚑𝚝 𝙸'𝚖 𝚗𝚘𝚝 𝚋𝚎𝚒𝚗𝚐 𝚏𝚘𝚛 𝚙𝚕𝚎𝚊𝚜𝚎 𝚓𝚞𝚜𝚝 𝚜𝚎𝚎 𝚏𝚛𝚘𝚖 𝚖𝚢 𝚙𝚎𝚛𝚜𝚙𝚎𝚌𝚝𝚒𝚟𝚎 𝙸 𝚌𝚊𝚗 𝚌𝚘𝚖𝚎 𝚠𝚒𝚝𝚑 𝚢𝚘𝚞 𝚋𝚞𝚝 𝙸 𝚌𝚊𝚗'𝚝 𝚜𝚒𝚝 𝚊𝚜𝚒𝚍𝚎 𝚠𝚑𝚒𝚕𝚎 𝚢𝚘𝚞 𝚎𝚗𝚍 𝚢𝚘𝚞𝚛𝚜𝚎𝚕𝚏 𝚘𝚟𝚎𝚛 𝚗𝚘𝚝𝚑𝚒𝚗𝚐 𝙸'𝚖 𝚜𝚘𝚛𝚛𝚢 𝚙𝚕𝚎𝚊𝚜𝚎 𝚛𝚎𝚜𝚙𝚘𝚗𝚍.
+skido: lets have childs! aswga:ok but 9nly 1 - tha kids: evbo- firt childe  saps-they got boref  sabito-dead monika-aanted a gerl  nezo-adopte of street  mugm-he spawn isndie Theiir house  assim-disowneed keigo hawkes- they found on balkoniy  smilk-adopted again  till-they want 10 child  koala gerl-also adoptef jard-they foudn him in ther basement  odysseuys-idk speout-they ware cuddling  00un7-forsekn(𝚍𝚎𝚊𝚍) 
